@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @JonasHenry01
-- 👀 I’m interested in aprender 
+- 👀 I’m interested in aprender Programação
+  
 - 🌱 I’m currently learning informatica basica , fundamental 2
 - 💞️ I’m looking to collaborate on com o que estiver em meu alcaçe 
 - 📫 How to reach me whtssap ou telegram 
